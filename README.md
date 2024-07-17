@@ -4,6 +4,10 @@ Hi 👋 My name is tongkao
 Faculty of Computer Enginering
 ------------------------------
 
+* 🌍  I'm based in I'm based i bangkok
+* ✉️  You can contact me at [IG : ton9kao\_](mailto:IG : ton9kao_)
+* 🚀  I'm currently working on [faculty of computer enginering students at RSU](http://RSU)
+
 ### Skills
 
 
